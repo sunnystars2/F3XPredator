@@ -4,7 +4,7 @@
 
  17 y.o
 
- I love love Devsuer (Devesto x Pursuer)
+ I love love F3XPredator (Devesto x Pursuer)
 
  Multishipper and Multifandom
 
