@@ -4,6 +4,8 @@
 
  17 y.o
 
+ I'm kinda bad at showing affection sorry </3
+
  I love love F3XPredator (Devesto x Pursuer)
 
  Multishipper and Multifandom
