@@ -10,7 +10,7 @@
 
  Transmasc / AFAB
 
- Devesto and Mercury fictionkin 
+ Devesto and Io are my 2 personalities / kins
 
  Demisexual and pansexual
 
