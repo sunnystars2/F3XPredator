@@ -14,7 +14,7 @@
 
  Transmasc / AFAB
 
- Devesto,Io (Solarballs) and MeQuot are my personalities / kins
+ Devesto,Io and Neptune (Solarballs) are my personalities / kins
 
  Demisexual and pansexual
 
