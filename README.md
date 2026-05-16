@@ -4,7 +4,7 @@
 
  17 y.o
 
- I'm kinda bad at showing affection sorry </3
+ I'm kinda bad at showing affection sorry but I try </3
 
  Big Astronomy lover
 
