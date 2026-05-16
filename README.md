@@ -6,6 +6,8 @@
 
  I'm kinda bad at showing affection sorry </3
 
+ Big Astronomy lover
+
  I love love F3XPredator (Devesto x Pursuer)
 
  Multishipper and Multifandom
