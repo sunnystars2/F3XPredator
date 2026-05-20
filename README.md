@@ -4,6 +4,8 @@
 
  17 y.o
 
+ Non-strict Catholic (I don't mention my religion much)
+
  I'm kinda bad at showing affection sorry but I try </3
 
  Big Astronomy lover
