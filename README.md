@@ -4,7 +4,7 @@
 
  17 y.o
 
- Non-strict Catholic (I don't mention my religion much)
+ Non-strict Catholic (I don't mention my religion much and don't EVER push it on anyone)
 
  I'm kinda bad at showing affection sorry but I try </3
 
