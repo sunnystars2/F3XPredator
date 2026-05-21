@@ -51,7 +51,7 @@
 
   ^_^ , DeivyDoesTurtorials33 
 
-  Percy Jackson , Let Him Go
+  Percy Jackson & The Olympians , Let Him Go
 
   Warrior Cats
   
