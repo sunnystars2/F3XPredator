@@ -59,7 +59,7 @@
   
   ## Favorite/comfort characters from my fandoms (In order of fandom)
 
-  Solarballs: The Sun,Mercury,Mars,Neptune,Pluto,Ganymede,Io,Haumea
+  Solarballs: Sun,Mercury,Mars,Neptune,Pluto,Ganymede,Io,Haumea
 
   Die of Death: Pursuer,MeQuot,Devesto,Swapful,Builder Artful
 
