@@ -53,6 +53,6 @@
 
   Percy Jackson & the Olympians , Let Him Go
 
-  Warrior Cats
+  Warrior Cats , Greek Mythology (Still new to it but very interested)
   
   ## WIP
