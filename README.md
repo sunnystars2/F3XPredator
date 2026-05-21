@@ -49,7 +49,7 @@
 
   Evade , House of Puso
 
-  Dandy's World , SpongeBob 
+  Dandy's World , SpongeBob SquarePants 
 
   ^_^ , DeivyDoesTurtorials33 
 
@@ -57,4 +57,34 @@
 
   Warrior Cats , Greek Mythology (Still new to it but very interested)
   
+  ## Favorite/comfort characters from my fandoms (In order of fandom)
+
+  Solarballs: The Sun,Mercury,Mars,Neptune,Pluto,Ganymede,Io,Haumea
+
+  Die of Death: Pursuer,MeQuot,Devesto,Swapful,Builder Artful
+
+  Wings of Fire: Clay,Sunny,Whiteout,Sundew,Freedom,Indigo 
+
+  Bad Things: Andrew
+
+  Evade: Bobo,Defect Rebel
+
+  House of Puso: Bayani
+
+  Dandy's World: Bobette,Finn,Sprout,Brightney,Boxten
+
+  SpongeBob SquarePants: Plankton,Patrick
+
+  ^_^: Fireguy,Skittles
+
+  DeivyDoesTurtorials33: JamesWarrior14,Z_7k 
+
+  Percy Jackson & the Olympians: Will,Leo,Jason
+
+  Let Him Go: Firering
+
+  Warrior Cats: Scourge,Feathertail,Leafpool,Ivypool
+
+  Greek Mythology: Hermes,Hades,Perseus
+
   ## WIP
