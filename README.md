@@ -79,7 +79,7 @@
 
   DeivyDoesTurtorials33: JamesWarrior14,Z_7k 
 
-  Percy Jackson & the Olympians: Will,Leo,Jason
+  Percy Jackson & the Olympians: Will,Leo,Jason,Hades,Hermes,Apollo
 
   Let Him Go: Fire Ring
 
