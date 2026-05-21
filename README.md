@@ -81,7 +81,7 @@
 
   Percy Jackson & the Olympians: Will,Leo,Jason
 
-  Let Him Go: Firering
+  Let Him Go: Fire Ring
 
   Warrior Cats: Scourge,Feathertail,Leafpool,Ivypool
 
